@@ -1,4 +1,4 @@
-To visit ( 
+To visit my when2meet click ( 
 
 https://ziyadsariaa.github.io/In-class-activity-CSS-When2Meet-Clone/ 
 
